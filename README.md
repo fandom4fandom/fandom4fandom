@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Jessica
 - 👀 I’m interested in Graphic Design
 - 🌱 I’m currently learning Marketing
-- 💞️ I’m looking to collaborate on finding a new position in ther Graphic Design industry
+- 💞️ I’m looking to collaborate on finding a new position in the Graphic Design industry
 - 📫 How to reach me via email: jwhitaker42599@gmail.com
 - 😄 Pronouns: she/her
 
